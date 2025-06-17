@@ -52,9 +52,11 @@ Do a retirement income check. Review your pension, investments, government benef
 Alvin's Tip: “The 50s are about protecting the future. You don’t need to chase big returns—you need to lock in what you’ve built.”
 
 The Big Picture: Retirement is a Life Strategy
+
 Alvin Ubaldo stresses that retirement planning isn’t just a financial exercise—it’s about creating a future where you have choices, freedom, and peace of mind.
 
 Whether you’re 30, 40, or 50, the secret isn’t a magic number—it’s clarity, consistency, and commitment. The road ahead will go more smoothly if you get started early.
 
 Final Thought from Alvin:
+
 "You may enjoy a comfortable retirement without being wealthy. You must have a plan and the self-control to follow it through.
