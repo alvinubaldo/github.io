@@ -32,9 +32,13 @@ By your 40s, life is fuller—and so is your list of responsibilities. You may b
 **Key Retirement Moves in Your 40s:**
 
 Aim to set aside at least 15–20% of your income for retirement as your income increases.
+
 Reevaluate your investment strategy. Ensure your portfolio aligns with your retirement goals and adjust it to reflect your current risk tolerance.
+
 Avoid lifestyle creep. Don’t let growing income lead to unnecessary spending. Direct excess income into investments or debt repayment.
+
 Start calculating your retirement needs. How much will you need to retire comfortably? Use calculators and talk to an advisor to map it out.
+
 Plan for your children—without compromising your retirement. Alvin reminds them, "You can borrow for college, not for retirement."
 
 📝 Example: If you haven’t started yet, saving ₹15,000/month in your 40s can still build a retirement fund of over ₹70 lakhs in 20 years with smart investments.
@@ -48,9 +52,13 @@ In your 50s, retirement becomes a visible destination. This is the time to get s
 **Key Retirement Moves in Your 50s:**
 
 Max out catch-up contributions. If you are over 50, take advantage of higher retirement account contribution limits.
+
 Eliminate or reduce major debts. Freeing yourself from big obligations like loans or high-interest debt gives you flexibility in retirement.
+
 Refine your retirement timeline. Decide when you want to retire and whether you’ll work part-time, downsize, or relocate.
+
 Evaluate healthcare and insurance. Medical expenses rise with age, so consider long-term care insurance and supplemental health plans.
+
 Do a retirement income check. Review your pension, investments, government benefits, and side incomes. Will it cover your expected lifestyle?
 
 📝 Example: A person starting at 50 who saves ₹25,000/month with a moderate return can still build over ₹1 crore by 65—if they plan aggressively and reduce risk wisely.
